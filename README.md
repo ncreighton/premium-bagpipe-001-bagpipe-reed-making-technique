@@ -1,0 +1,2 @@
+# premium-bagpipe-001-bagpipe-reed-making-technique
+You're spending hours experimenting with bagpipe reed techniques, but your notes are scattered across notebooks, voice memos, and half-forgotten adjustments. The Bagpipe Reed Making Technique Log transforms your trial-and-error process into a systematic, searchable record that actually helps you replicate your best reeds.  This Notion template crea
